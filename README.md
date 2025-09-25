@@ -27,6 +27,7 @@
 #### Steps
 - You simply need to copy the link of the post you want to share with your friends.
 - Visit insta sheer paste the link and proceed.
+- New Share Link is Genetrated!
 - Now you will find options for copy, share, etc. .
 - Go the way according to your preference.
 
